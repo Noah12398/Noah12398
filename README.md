@@ -1,4 +1,4 @@
-# jyujyyh
+# About Myself
 
 - 👋 Hi, I’m @Noah12398
 - 👀 I’m interested in coding
